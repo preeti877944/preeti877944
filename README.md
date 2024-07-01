@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @preeti877944
-- 👀 I’m interested in  blockchin development
+- 👀 I’m interested in  blockchain development
 - 📫 How to reach by gmail id
 - 😄 Pronouns: she,her
 
